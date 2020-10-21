@@ -1,6 +1,6 @@
 # Guemil Stickers
 
-### Guemil Stickers for WhatsApp & Guemil Stickers for Telegram
+### Guemil Stickers for WhatsApp + Guemil Stickers for Telegram
 
 - - - - - - - - - 
 
